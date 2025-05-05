@@ -6,4 +6,4 @@
 - ⚡ Obrigado a todos!
 
 
-![.]https://media1.tenor.com/m/4EFLpZ8wUnUAAAAC/cole-palmer.gif
+![.](https://media1.tenor.com/m/4EFLpZ8wUnUAAAAC/cole-palmer.gif)

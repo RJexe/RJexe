@@ -1,4 +1,4 @@
-##Opa meu nickname é @RJexe##
+## Opa meu nickname é @RJexe
 - 👀 Sou interessado em programação e jogos.
 - 🌱 Tenho interesse em aprender a programar e saber mais afundo a programação e sobre a internet.
 - 🤖 Gosto de jogar varios jogos que exigem comunicação e acho que posso aprender a programar

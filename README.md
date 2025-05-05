@@ -6,4 +6,4 @@
 - ⚡ Obrigado a todos!
 
 
-![.]https://tenor.com/pt-BR/view/cole-palmer-gif-16159280112694481525
+![.]https://media1.tenor.com/m/4EFLpZ8wUnUAAAAC/cole-palmer.gif

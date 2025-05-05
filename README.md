@@ -4,6 +4,6 @@
 - 📫 Meu e-mail: silva.peres.joao@escola.pr.gov.br
 
 - ⚡ Obrigado a todos!
-  ![.]https://tenor.com/pt-BR/view/cole-palmer-gif-16159280112694481525
+
 
 ![.]https://tenor.com/pt-BR/view/cole-palmer-gif-16159280112694481525
